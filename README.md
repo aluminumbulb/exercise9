@@ -1,3 +1,4 @@
 #exercise9
-Things looking grim
-
+Adrian Miller
+adrianrichmiller@gmail.com
+aluminumbulb
